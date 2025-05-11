@@ -1,5 +1,3 @@
-![boys don't cry](https://github.com/user-attachments/assets/3762cc94-de5a-4b6c-9842-6e018bee3e1b)
-
 ![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
 
 <img src="https://github.com/user-attachments/assets/d39d8e34-3df6-4f68-a8f7-ef1529c21b6f" alt="ponysona" width="your_width" height="your_height" loop=infinite>
