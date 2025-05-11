@@ -4,4 +4,4 @@
 
 ![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
 
-<img src="https://github.com/user-attachments/assets/5c309f7c-908a-4c07-8888-588e2a5bca1e" alt="ponysona" width="your_width" height="your_height" loop=infinite>
+<img src="https://github.com/user-attachments/assets/d39d8e34-3df6-4f68-a8f7-ef1529c21b6f" alt="ponysona" width="your_width" height="your_height" loop=infinite>
