@@ -1,6 +1,6 @@
 ![boys don't cry](https://github.com/user-attachments/assets/37f4adf5-c427-423c-a44a-f2eb53d592c3)
 
-<img src="https://github.com/user-attachments/assets/d39d8e34-3df6-4f68-a8f7-ef1529c21b6f" alt="ponysona" width="your_width" height="your_height" loop=infinite>
+<img src="https://github.com/user-attachments/assets/37503a6a-1c0a-42e2-bd25-5c07df0c3a99" alt="ponysona" width="your_width" height="your_height" loop=infinite>
 
 ![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
 
