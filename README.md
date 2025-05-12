@@ -8,4 +8,4 @@
 
 ![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
 
-![ponysona](https://github.com/user-attachments/assets/2196cc63-2799-4d6f-9a53-0b1d6e1824e9)
+![ponysonagif](https://github.com/user-attachments/assets/765f8b31-b88d-4576-8b08-7c9a39109225)
