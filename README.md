@@ -1,6 +1,6 @@
 ![boys don't cry](https://github.com/user-attachments/assets/37f4adf5-c427-423c-a44a-f2eb53d592c3)
 
-<img src="https://github.com/user-attachments/assets/37503a6a-1c0a-42e2-bd25-5c07df0c3a99" alt="ponysona" width="your_width" height="your_height" loop=infinite>
+<img src="https://github.com/user-attachments/assets/70d9617c-6141-4f46-bb17-eeab576ae52a" alt="ponysona" width="your_width" height="your_height" loop=infinite>
 
 ![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
 
@@ -8,4 +8,4 @@
 
 ![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
 
-![ponysonagif](https://github.com/user-attachments/assets/765f8b31-b88d-4576-8b08-7c9a39109225)
+<img src="https://github.com/user-attachments/assets/37503a6a-1c0a-42e2-bd25-5c07df0c3a99" alt="ponysona" width="your_width" height="your_height" loop=infinite>
