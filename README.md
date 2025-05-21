@@ -4,9 +4,8 @@
 
 ![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
 
-![ponysonagif](https://github.com/user-attachments/assets/672873ed-b979-4cea-93d7-8377bd68309d)
-
+[![kill the life](https://github.com/user-attachments/assets/672873ed-b979-4cea-93d7-8377bd68309d)](https://letterboxd.com/resfrios/)
 
 ![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
 
-![ponysonagiffinalversion](https://github.com/user-attachments/assets/09f87f57-91ab-4281-b14a-e521c92da929)
+[![kamuiisback](https://github.com/user-attachments/assets/09f87f57-91ab-4281-b14a-e521c92da929)](https://www.tumblr.com/blog/resfrios)
