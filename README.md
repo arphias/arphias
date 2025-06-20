@@ -1,11 +1,5 @@
 ![boys don't cry](https://github.com/user-attachments/assets/37f4adf5-c427-423c-a44a-f2eb53d592c3)
 
-[![kill the past](https://github.com/user-attachments/assets/df426a37-c0ab-437b-8f4d-0b95db1ff1c4)](https://steamcommunity.com/id/arphias/) [![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=resfrios&width=400&count=6&loved=true&loved_style=1&header_style=compact_stats_only&show_user=always&footer_style=wave&bg_color=000000)](https://www.last.fm/user/resfrios)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31n7pobd6zaqumfwaldxei7ulhdi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31n7pobd6zaqumfwaldxei7ulhdi&redirect=true)
 
-![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
-
-[![kill the life](https://github.com/user-attachments/assets/672873ed-b979-4cea-93d7-8377bd68309d)](https://letterboxd.com/arphias/)
-
-![ttttttt](https://github.com/user-attachments/assets/4aa895a6-2f9a-4aa7-8818-fccdd23ed0d5)
-
-[![kamuiisback](https://github.com/user-attachments/assets/09f87f57-91ab-4281-b14a-e521c92da929)](https://www.tumblr.com/blog/resfrios)
+[![kill the past](https://github.com/user-attachments/assets/df426a37-c0ab-437b-8f4d-0b95db1ff1c4)](https://steamcommunity.com/id/arphias/) 
